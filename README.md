@@ -1,0 +1,1 @@
+# homespark-privacy
